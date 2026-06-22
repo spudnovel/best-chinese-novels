@@ -3,7 +3,7 @@ A curated list of the best Chinese web novels | 精选中文网络小说推荐
 
 精选20部高质量中文网络小说，涵盖科幻、玄幻、悬疑、都市、甜宠等多种类型，持续更新。
 
-> 📖 在线阅读平台：[SpudNovel](https://spudnovel.com)
+> 📖 在线阅读平台：[土豆小说网](https://spudnovel.com)
 
 ---
 
